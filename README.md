@@ -6,7 +6,7 @@
  
 <details>
 <summary> Basic Information</summary>
-I have autism spectrum disorder & chronic loneliness, do be respectful and use tonetags with me. I am extremely disconnected with people in general and their emotions, even if you're seemingly close with me. I do try my best to empathise either way. I am legitimately mentally unwell. Sometimes I will go quiet, it doesn't mean I'm upset per-se, simply not interested or overwhelmed. I have a poor recollection, and might not remember you well. Often zoning out, either day dreaming or mindlessly wandering.
+I have autism spectrum disorder & chronic loneliness. Do be respectful and use tone tags with me if possible. I am extremely disconnected from people in general and their emotions, even if you're seemingly close to me. I do try my best to empathise either way. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply not interested or overwhelmed. I have poor recollection, and might not remember you well. Often zoning out, either daydreaming or mindlessly wandering.
 </details>
 
 <details>
