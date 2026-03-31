@@ -17,7 +17,7 @@ I have autism spectrum disorder & chronic loneliness, do be respectful and use t
 
 <details>
 <summary> Pony Town Notes</summary>
-Cuddle or sit with me if we're in the same fandom, I like the company. W2i is heavily encouraged and preferred, I often miss messages due to being offtab / s-afk. If we're friends on any platform feel free to joining me
+Cuddle or sit with me if we're in the same fandom, I like the company. W2i is heavily encouraged and preferred, I often miss messages due to being offtab / s-afk. If we're friends on any platform feel free to join me
 </details>
 
 
