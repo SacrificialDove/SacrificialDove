@@ -5,9 +5,27 @@
  My name is Eleanore, I'm commonly referred to as Lyn, or otherwise. Moniker's are all right, sometimes encouraged.
  
 <details>
+<summary> Basic Information</summary>
 
- <summary> Before You Interact</summary>
+I have Autism Spectrum Disorder & chronic loneliness, do be respectful and use tonetags with me. I am very disconnected with people in general and their emotions, even if you're seemingly close with me. I do try my best to empathise either way. Sometimes I will go quiet, it doesn't mean I'm upset per-se, simply not interested or overwhelmed. I have a bad memory, and might not recall you perfectly. Often zoning out, either day dreaming or mindlessly wandering. I am mentally unwell. If you ever have any questions for me just simply ask
 
-I have Autism Spectrum Disorder & chronic loneliness, do be respectful and use tonetags with me. I am very disconnected with people and their emotions, even if you're seemingly close with me. I do try my best to empathise either way.
+If I make you uncomfortable I expect you to verbally express so if you want change, don't think I can read your mind.
+</details>
+
+<details>
+<summary> Do Not Interact</summary>
+
+[Basic DNI](https://dni-criteria.carrd.co/) : I am a minor under 18, do not even attempt interact if you are uncomfortable with such. If you're looking for a partner. My past friends, or their friends trying to contact me on their behalf. Don't treat me like I'm your child. Just don't be an asshole and you'll be fine.
+</details>
+
+<details>
+<summary> Pony Town Notes</summary>
+
+- Freely cuddle or sit with me if we're in the same fandom, I like the company.
+- w2i is heavily encouraged and preferred, I often miss messages due to being offtab / s-afk.
+- If we're friends on any platform feel free to come and hangout
+</details>
+
+
 
 <br clear="left"/>
