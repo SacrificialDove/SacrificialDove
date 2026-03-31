@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=briarprince&color=green)
 
- My name is Eleanore, though I'm commonly referred to as Lyn, or otherwise. Moniker's are all right, encouraged even
+ My name is Eleanore, though I'm commonly referred to as Lyn, or otherwise. Moniker's are all right, sometimes encouraged.
 <details>
 
 <summary>information</summary>
