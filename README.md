@@ -6,7 +6,7 @@
  
 <details>
 
-<summary> BYI</summary>
+<summary> BYI Information</summary>
 
 I have Autism Spectrum Disorder & chronic loneliness, do be respectful and use tonetags with me. I am very disconnected with people and their emotions, even if you're seemingly close with me. I do try my best to empathise either way.
 
