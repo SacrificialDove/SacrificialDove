@@ -12,7 +12,7 @@ I have autism spectrum disorder & chronic loneliness, do be respectful and use t
 <details>
 <summary> Do Not Interact</summary>
 
-[Basic DNI](https://dni-criteria.carrd.co/) : If you're looking for a intimate partner. My past friends, or their friends trying to contact me on their behalf. Treating me like a child simply because I'm disabled. Making inapropriate jokes within little time of knowing eachother. Just don't be an asshole and you'll be fine.
+[Basic Do Not Interact](https://dni-criteria.carrd.co/) : If you're looking for a intimate partner. My past friends, or their friends trying to contact me on their behalf. Treating me like a child simply because I'm disabled. Making inapropriate jokes within little time of knowing eachother. Just don't be an asshole and you'll be fine.
 </details>
 
 <details>
