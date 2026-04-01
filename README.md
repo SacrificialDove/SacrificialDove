@@ -2,7 +2,7 @@
 
 <br clear="left"/>
 
-My name is Eleanore, I'm commonly referred to as Lyn, or otherwise. Nickname's are all right, sometimes encouraged.
+My name is Eleanore, I'm commonly referred to as Lyn, or otherwise. Nickname's are encouraged and appreciated
  
 <details>
 <summary> Basic Information</summary>
@@ -12,13 +12,13 @@ I have chronic loneliness & diagnosed autism spectrum disorder. Do be respectful
 <details>
 <summary> Do Not Interact</summary>
 
-[Basicdni](https://dni-criteria.carrd.co/) : If you're looking for a intimate partner. My past friends, or their friends trying to contact me on their behalf. Treating me like a child simply because I'm disabled. Making inapropriate jokes within little time of knowing eachother. Just don't be an asshole and you'll be fine.
+[Basic dni](https://dni-criteria.carrd.co/) : If you're looking for a romantic partner, I'm not an option. My past friends, or their friends trying to contact me on their behalf. Treating me like your child simply because I'm disabled or younger than you. Making inapropriate jokes within very little time of knowing eachother. Unable to communicate Just don't be an asshole and you'll be fine.
 </details>
 
 <details>
 <summary> Pony Town</summary>
 Freely cuddle / hug, unless my name says otherwise.
 W2i is heavily encouraged, I'm often s-afk, offtab or i simply miss your message.
-I don't like engaging in roleplay, I will join if I feel up to it. I'm mostly open to interaction
+I don't like engaging in roleplay nor ships, I will join sometimes If feel up to it. I'm open to interaction
 </details>
 
