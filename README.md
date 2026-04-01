@@ -2,7 +2,7 @@
 
 <br clear="left"/>
 
-My name is Eleanore, I'm commonly referred to as Lyn, or otherwise. Nickname's are encouraged and appreciated
+My name is Eleanore, though I'm more commonly referred to as Lyn. Nickname's are encouraged and appreciated
  
 <details>
 <summary> Basic Information</summary>
