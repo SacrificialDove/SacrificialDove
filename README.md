@@ -8,7 +8,7 @@ My name is Eleanore, I'm commonly referred to as Lyn, or otherwise. Nickname's a
  
 <details>
 <summary> Basic Information</summary>
-I have autism spectrum disorder & chronic loneliness. Do be respectful and use tone tags with me if possible. I am extremely disconnected from people and their emotions, it bemuses me, even if you're seemingly close to me. I do try my best to empathise either way. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply uninterested or overwhelmed. I have poor recollection, and might not remember you well. Often zoning out, either daydreaming or mindlessly wandering.
+I have autism spectrum disorder & chronic loneliness. Do be respectful and use tone tags with me if possible. I am extremely disconnected from people and their emotions, it confuses me, even if you're seemingly close to me. I do try my best to empathise either way. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply uninterested or overwhelmed. I have poor recollection, and might not remember you well. Often zoning out, either daydreaming or mindlessly wandering.
 </details>
 
 <details>
