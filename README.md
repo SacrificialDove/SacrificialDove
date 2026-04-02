@@ -6,7 +6,7 @@
 
 <details>
 <summary> Important Information</summary>
-I have chronic loneliness &am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and sometimes reality, even if you're seemingly close to me, I do try my best to empathize, regardless. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply uninterested or overwhelmed. I have poor recollection, and might not remember you or certain details well. I have a tendency to shift my personality and mood. I sometimes have short mini-shutdowns. Often daydreaming or mindlessly wandering.
+I have chronic loneliness &am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and sometimes reality, even if you're seemingly close to me, I do try my best to empathize, regardless. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply uninterested, overwhelmed, or something else. I have poor recollection, and might not remember you or certain details well. I have a tendency to shift my personality and mood. I sometimes have short mini-shutdowns. Often daydreaming or mindlessly wandering.
 </details>
 
 <details>
