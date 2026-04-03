@@ -19,6 +19,7 @@ I have chronic loneliness &am diagnosed autism spectrum disorder. Do be respectf
 - Infantilising me due to either my disability or age
 - Unable to communicate in any capacity
 - Past friends or their friends attempting to contact me on their behalf
+- I block freely, + If you've blocked me just keep it that way
 </details>
 
 <details>
@@ -27,6 +28,5 @@ I have chronic loneliness &am diagnosed autism spectrum disorder. Do be respectf
 - Freely C+H & interact, unless my name says otherwise.
 - W2i is heavily encouraged, as I am often s-afk, offtab or I simply misss your message.
 - If you are on my friendlist or we follow eachother, I would appreciate your company.
-- I block freely
 </details>
 
