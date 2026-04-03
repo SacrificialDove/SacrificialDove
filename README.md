@@ -6,7 +6,7 @@
 
 <details>
 <summary> Important Information</summary>
-I have chronic loneliness &am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally reality, even if you're seemingly close to me, I do try my best to empathize, regardless. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply uninterested or something else. I have poor recollection, and might not remember you or certain details well. I have a tendency to shift my personality and mood. I experience mini-shutdowns somewhat frequently, but they are mostly short. Often daydreaming or mindlessly wandering.
+I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally reality, even if you're seemingly close to me, I do try my best to empathize, regardless. I am legitimately mentally unwell. Sometimes I will go quiet. That doesn't mean I'm upset per-se, simply uninterested or something else. I have poor recollection, and might not remember you or certain details well. I have a tendency to shift my personality and mood. I experience mini-shutdowns somewhat frequently, but they are mostly short. Often daydreaming or mindlessly wandering.
 </details>
 
 <details>
@@ -26,7 +26,7 @@ I have chronic loneliness &am diagnosed autism spectrum disorder. Do be respectf
 <summary> Pony Town Notes</summary>
  
 - Freely C+H & interact, unless my name says otherwise
-- W2i is heavily encouraged, as I am often s-afk, offtab or I simply misss your message
+- W2i is heavily encouraged, as I am often s-afk, offtab or I simply miss your message
 - If you are on my friendlist or we follow eachother, I would appreciate your company
 </details>
 
