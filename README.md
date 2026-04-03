@@ -13,7 +13,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
 <summary> Do Not Interact</summary>
  
 [Basic DNI Criteria](https://dni-criteria.carrd.co/) 
-- Befriending me expecting a romantic relationship
+- Befriending me, then expecting a romantic relationship
 - Approaching me for any ship
 - Intimate / sexual jokes unless you're close with me
 - Infantilising me due to either my disability or age
