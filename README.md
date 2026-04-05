@@ -8,22 +8,21 @@
 <details>
 <summary> Basic Information</summary>
 
-- Birthdate 12/14
-- Malleus Riako
-- 
+- Birthdate : December 14th
+- Malleus Draconia Riako
+- I'm a clingy person & get easily attached
 </details>
 
 <details>
 <summary> Before You Interact</summary>
-I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. Sometimes, I will go quiet. That doesn't mean I'm upset per se, just simply uninterested or something else. I have poor recollection, and might not remember you or certain details well. My personality and mood swings shift randomly, do be patient whenever it happens. I experience mini-shutdowns somewhat frequently, but they are mostly short. Often daydreaming or mindlessly wandering.
+I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. Sometimes, I will go quiet. That doesn't mean I'm upset per se, just simply uninterested or something else. I have poor recollection, and might not remember you or certain details well. My personality and mood swings shift randomly, do be patient whenever it happens. I am frequently fatigued. Often daydreaming or mindlessly wandering.
 </details>
 
 <details>
 <summary> Do Not Interact</summary>
  
-[Basic DNI Criteria](https://dni-criteria.carrd.co/) : I block freely. Just don't be an asshole.
+[Basic DNI Criteria](https://dni-criteria.carrd.co/) +ㅤI block freely. Just don't be an asshole.
 - Befriending me, then expecting a romantic relationship
-- IWEC : Yumeship / Selfship doubles
 - Intimate jokes, unless you're close with me
 - Infantilising me because of my disability
 - Unable to communicate in any capacity
