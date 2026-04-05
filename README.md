@@ -16,7 +16,7 @@
 
 <details>
 <summary> Before You Interact</summary>
-I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. Sometimes, I will go quiet. That doesn't mean I'm upset per se, just simply uninterested or something else. I have poor recollection, and might not remember you or certain details well. My personality and mood shifts randomly, do be patient whenever it happens. I am frequently fatigued due to high masking. Often daydreaming or mindlessly wandering.
+I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. I have poor recollection, and might not remember you or certain details well. My personality and mood shifts randomly, do be patient whenever it happens. I am frequently fatigued due to high masking. Often daydreaming or mindlessly wandering.
 </details>
 
 <details>
@@ -24,7 +24,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
  
 [Basic DNI Criteria](https://dni-criteria.carrd.co/) + I block freely. Just don't be an asshole.
 - Befriending me, then expecting a romantic relationship
-- Intimate jokes, unless you're close with me
+- Intimate or inappropriate jokes, unless you're close with me
 - Infantilising me because of my disability
 - Unable to communicate in any capacity
 - Only interacting with me so you can vent
