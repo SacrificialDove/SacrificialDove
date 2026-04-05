@@ -2,7 +2,7 @@
 
 <br clear="left"/>
 
-#### My name is Eleanore, though I'm more commonly referred to as Lyn. Nicknames / petnames are alright
+#### My name is Eleanore, though I'm more commonly referred to as Lyn. Nicknames / petnames are all right
 
 <details>
 <summary> Important Information</summary>
