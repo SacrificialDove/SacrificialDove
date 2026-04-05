@@ -35,7 +35,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
 <summary> Pony Town Notes</summary>
  
 - Freely C+H & interact, unless my name says otherwise
-- I don't often enjoy roleplaying, but I will play along
+- I don't often enjoy roleplaying, don't force it
 - Only found on the safe server
 - W2i is heavily encouraged, as I am often s-afk, off-tab, or I simply missed your message
 - Don't copy my ponies. If you want to take inspo, ask
