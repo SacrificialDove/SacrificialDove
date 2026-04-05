@@ -11,7 +11,7 @@
 - Birthdate : December 14th
 - Malleus Draconia Riako
 - I'm a clingy person & get easily attached
-- Unlabeled / questioning
+- Unlabeled, don't try to label me
 </details>
 
 <details>
