@@ -21,7 +21,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respect
 <details>
 <summary> Do Not Interact</summary>
  
-[Basic DNI Criteria](https://dni-criteria.carrd.co/) +ㅤI block freely. Just don't be an asshole.
+[Basic DNI Criteria](https://dni-criteria.carrd.co/) + I block freely. Just don't be an asshole.
 - Befriending me, then expecting a romantic relationship
 - Intimate jokes, unless you're close with me
 - Infantilising me because of my disability
