@@ -15,7 +15,7 @@
 
 <details>
 <summary> Before You Interact</summary>
-I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. Sometimes, I will go quiet. That doesn't mean I'm upset per se, just simply uninterested or something else. I have poor recollection, and might not remember you or certain details well. My personality and mood swings shift randomly, do be patient whenever it happens. I am frequently fatigued. Often daydreaming or mindlessly wandering.
+I have chronic loneliness & am diagnosed autism spectrum disorder. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. Sometimes, I will go quiet. That doesn't mean I'm upset per se, just simply uninterested or something else. I have poor recollection, and might not remember you or certain details well. My personality and mood shifts randomly, do be patient whenever it happens. I am frequently fatigued. Often daydreaming or mindlessly wandering.
 </details>
 
 <details>
