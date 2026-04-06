@@ -26,7 +26,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm quite 
 - Malleus Yumeshippers, or ships — I’m not fond of doubles. Either don’t interact, or interact with caution.
 - Befriending me, then expecting a romantic relationship
 - Intimate or inappropriate jokes, unless you're close with me
-- Only contacting with me to vent or ask for favors, with no genuine interest in a relationship
+- Only contacting me to vent or ask for favors, with no genuine interest in a relationship
 - Infantilising me because of my disability
 - Unable to communicate in any capacity
 </details>
