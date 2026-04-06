@@ -37,7 +37,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm quite 
 - Freely C+H & interact, unless my name says otherwise
 - I don't often enjoy roleplaying, don't force it
 - I'm only active on the safe server, never on 18+
-- W2i is heavily encouraged, as I am often s-afk, off-tab, or I simply missed your message
+- W2i is encouraged, as I am often s-afk, off-tab, or I simply missed your message
 - Don't copy my ponies. Light inspiration is alright
 </details>
 
