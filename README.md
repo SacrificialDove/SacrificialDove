@@ -15,7 +15,7 @@
 
 <details>
 <summary> Before You Interact</summary>
-I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm very affected by my disability, I won't be able to mention everything here. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. I have poor recollection, and might not remember you or certain details well. My personality and mood shifts randomly, do be patient whenever it happens. I am frequently fatigued due to high masking. Often daydreaming or mindlessly wandering.
+I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm quite affected by my disability, I won't be able to mention everything here. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. I have poor recollection, and might not remember you or certain details well. My personality and mood shifts randomly, do be patient whenever it happens. I am frequently fatigued due to high masking. Often daydreaming or mindlessly wandering.
 </details>
 
 <details>
@@ -36,8 +36,8 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm very a
  
 - Freely C+H & interact, unless my name says otherwise
 - I don't often enjoy roleplaying, don't force it
-- I'm only active on the safe server
+- I'm only active on the safe server, never on 18+
 - W2i is heavily encouraged, as I am often s-afk, off-tab, or I simply missed your message
-- Don't copy my ponies. If you want to take inspo, ask
+- Don't copy my ponies. Light inspiration is alright
 </details>
 
