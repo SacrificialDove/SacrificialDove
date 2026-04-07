@@ -30,7 +30,7 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm signif
 - Intimate or inappropriate jokes, unless you're close with me
 - Only contacting me to vent or ask for favors, with no genuine interest in a relationship
 - Infantilising me because of my disability
-- Unable to communicate issues with me in any capacity
+- Unable to communicate with me in any capacity
 </details>
 
 <details>
