@@ -25,9 +25,9 @@ I have chronic loneliness & am diagnosed autism spectrum disorder. As I'm signif
  
 [Basic DNI Criteria](https://dni-criteria.carrd.co/) + I block freely even if you aren't on this list, for my own comfort. Just don't be an asshole.
 - Past friends or their friends attempting to contact me on their behalf
-- Malleus Yumeshippers, or ships — I’m not fond of doubles. Either don’t interact, or interact with caution.
+- Malleus Yumeshippers, or ships—I’m not fond of doubles. Either don’t interact, or interact with caution.
 - Befriending me, then expecting a romantic relationship
-- Intimate or inappropriate jokes, unless you're close with me
+- inappropriate jokes, unless you're close to me
 - Only contacting me to vent or ask for favors, with no genuine interest in a relationship
 - Infantilising me because of my disability
 - Unable to communicate with me in any capacity
