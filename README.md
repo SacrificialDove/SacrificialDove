@@ -11,7 +11,7 @@
 - Malleus Draconia Riako
 - I'm a clingy person & get easily attached.
 - My birthdate : December 14th
-- I'm Eurasian. Danish and Chinese. I can't speak Chinese but I can speak Danish
+- I'm Eurasian — Danish and Chinese. Though I can only speak Danish.
 </details>
 
 <details>
