@@ -17,7 +17,7 @@
 
 <details>
 <summary> Before You Interact</summary>
-I have chronic loneliness & I'm diagnosed with autism spectrum disorder. I'm significantly affected by my disability. I won't be able to mention everything here. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. I have poor recollection, and might not remember you or certain details well. I become dysregulated and overwhelmed very easily and frequently, in many instances stay that way for long periods of time. I am generally fatigued due to masking. Often daydreaming or mindlessly wandering.
+I have chronic loneliness & I'm diagnosed with autism spectrum disorder. I'm significantly affected by my disability, so I won't be able to mention everything here. Do be respectful and use tone tags with me if possible. I am often times disconnected with people and their emotions and occasionally, reality—even if you're seemingly close to me. However, I do try my best to empathize. Regardless, I am legitimately mentally unwell. I have poor recollection, and might not remember you or certain details well. I become dysregulated and overwhelmed very easily and frequently, in many instances stay that way for long periods of time. I am generally fatigued due to masking. Often daydreaming or mindlessly wandering.
 </details>
 
 <details>
