@@ -10,9 +10,8 @@
 
 - I'm Eurasian—Danish and Chinese. Though I can only speak Danish and English
 - Malleus Draconia riako, non-sharing
-- Minor, under 15 years old
 - I'm a clingy person & get easily attached.
-- My birthdate : December 14th
+- My birthdate : December 14th, 2012
 </details>
 
 <details>
