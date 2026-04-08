@@ -36,7 +36,7 @@ I have chronic loneliness & am diagnosed with Autism Spectrum Disorder. I am sig
 <details>
 <summary> Pony Town Notes</summary>
  
-- ‎cud comf + interact freely, unless stated otherwise
+- ‎cudcomf + interact freely, unless stated otherwise
 - I don't often enjoy roleplaying, don't force it
 - I'm only active on the safe server, never on 18+
 - W2i is encouraged, as I am often s-afk, off-tab, or I simply missed your message
