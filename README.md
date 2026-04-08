@@ -24,7 +24,7 @@ I have chronic loneliness & am diagnosed with Autism Spectrum Disorder. I am sig
  
 [Basic DNI Criteria](https://dni-criteria.carrd.co/) + I block freely for my own comfort.
 - Past friends or their friends attempting to reach out to me on their behalf
-- Malleus Yumeshippers, or ships—I’m not fond of doubles; they make me uncomfortable. Either don’t interact, or interact with care
+- Malleus Yumeshippers, selfshippers or ships—I’m not fond of any; they make me uncomfortable. Either don’t interact, or interact with care
 - Befriending me, then expecting a romantic relationship
 - inappropriate jokes, unless you're close to me
 - Only contacting me to vent or ask for favors, while having no interest in a friendship
