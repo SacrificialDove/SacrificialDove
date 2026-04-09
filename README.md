@@ -22,19 +22,19 @@ I have chronic loneliness & am diagnosed with Autism Spectrum Disorder. I am sig
 <details>
 <summary> Do Not Interact</summary>
  
-[Basic DNI Criteria](https://dni-criteria.carrd.co/) + I block freely for my own comfort.
+[Basic DNI Criteria](https://dni-criteria.carrd.co/) + 
+I block freely for my own comfort, regardless of this list
 - Past friends or their friends attempting to reach out to me on their behalf
-- Malleus Yumeshippers, selfshippers or ships—I’m not fond of doubles; they make me uncomfortable. Either don’t interact, or interact with care
-- Befriending me, then expecting a romantic relationship
-- inappropriate jokes, unless you're close to me
-- Only contacting me to vent or ask for favors, while having no interest in an actual relationship
 - If you are unable or unwilling to communicate clearly
+- Malleus Yumeshippers, selfshippers or ships—I’m not fond of doubles; they make me uncomfortable. Either don’t interact, or interact with care
+- Befriending me with the expectation of a romantic relationship
+- inappropriate or sexual jokes, unless you are close to me
+- Only contacting me to vent or ask for favors, while having no interest in an actual relationship
 </details>
 
 <details>
 <summary> Pony Town Notes</summary>
  
-- ‎Cudcomf + interact freely, unless stated otherwise
 - I don't often enjoy roleplaying, don't force it
 - I'm only active on the safe server, never on 18+
 - W2i is encouraged, as I am often s-afk, off-tab, or I simply missed your message
