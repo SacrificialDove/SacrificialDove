@@ -9,7 +9,7 @@
 <summary> Basic Information</summary>
 
 - I'm Eurasian—Danish and Chinese. Though I can only speak Danish and English
-- Malleus Draconia riako
+- Malleus Draconia riako, selective / non-sharing
 - My birthday : December 14th
 </details>
 
@@ -34,10 +34,10 @@ I block freely for my own comfort, regardless of specifics
 <details>
 <summary> Pony Town Notes</summary>
  
-- I rarely enjoy roleplaying. Don't force it, if you do you'll only make me upset
 - Don't copy my ponies. Light inspiration is alright. Respectfully, do ask first
 - I'm only ever active on the safe server, never on 18+
 - Heavily cudcomf; I like sitting, cuddling and hiding behind my friends
+- I rarely enjoy roleplaying. Don't force it
 - W2i is encouraged, as I am often s-afk, off-tab, or I simply missed your message, as I usually only check my personal local chat. I'm not ignoring you
 </details>
 
