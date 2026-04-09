@@ -3,7 +3,7 @@
 <br clear="left"/>
 ㅤ
 
-#### My name is Eleanore, though I'm also referred to as Lyn, or Ài.
+#### My name is Eleanore, though I'm also referred to as Lyn, or 許愛.
 
 <details>
 <summary> Basic Information</summary>
@@ -25,10 +25,10 @@ I have chronic loneliness & am diagnosed with Autism Spectrum Disorder. I won't 
 I block freely for my own comfort, regardless of specifics
 - Past friends or their friends attempting to reach out to me on their behalf
 - If you are unable or unwilling to communicate clearly
-- Malleus Yumeshippers, selfshippers or ships—I’m not fond of doubles; they make me uncomfortable. Either don’t interact, or interact with care
-- Befriending me, then expecting a romantic relationship. I have no interest
-- inappropriate or sexual jokes—unless we're close or have known each other for a while
-- Only contacting me to vent or ask for favors, while having no interest in a mutual relationship
+- Malleus Yumeshippers, selfshippers, or ships—I’m not fond of doubles; they make me uncomfortable. Either don’t interact, or interact with care
+- Befriending me, then expecting a romantic relationship; I have no interest in such
+- Inappropriate or sexual jokes—unless we're close or have known each other for a while
+- Solely contacting me to vent or ask for favors, while having no interest in a mutual relationship
 </details>
 
 <details>
