@@ -27,6 +27,7 @@ I block freely for my own comfort, regardless of specifics
 - If you are unable or unwilling to communicate clearly
 - Malleus Yumeshippers, selfshippers, or ships—I’m not fond of doubles; they make me uncomfortable. Either don’t interact, or interact with care
 - Don't befriend me with the expectation of a romantic relationship; I have no interest in such
+- Proshippers, darkshippers, and anyone whom supports ships with large gaps in age, experience, or maturity
 - Inappropriate or sexual jokes—unless we're close or have known each other for a while
 - Do not solely contact me to vent or ask for favors, while having no interest in a mutual relationship
 </details>
