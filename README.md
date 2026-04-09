@@ -23,7 +23,7 @@ I have chronic loneliness & am diagnosed with Autism Spectrum Disorder. I am sig
 <summary> Do Not Interact</summary>
  
 [Basic DNI Criteria](https://dni-criteria.carrd.co/) + 
-I block freely for my own comfort, regardless of this list
+I block freely for my own comfort, regardless of specifics
 - Past friends or their friends attempting to reach out to me on their behalf
 - If you are unable or unwilling to communicate clearly
 - Malleus Yumeshippers, selfshippers or ships—I’m not fond of doubles; they make me uncomfortable. Either don’t interact, or interact with care
