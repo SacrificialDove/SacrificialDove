@@ -35,7 +35,7 @@ I block freely for my own comfort, regardless of specifics
 <details>
 <summary> Pony Town Notes</summary>
  
-- Don't copy my ponies. Light inspiration is alright. Do ask first
+- Don't copy my ponies. Light inspiration is alright, do ask me first
 - I'm only ever active on the safe server, never on 18+
 - Heavily cudcomf; I like sitting, cuddling and hiding behind my friends
 - I rarely enjoy roleplaying. Don't force it
