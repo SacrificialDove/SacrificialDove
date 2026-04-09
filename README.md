@@ -9,7 +9,8 @@
 <summary> Basic Information</summary>
 
 - I'm Eurasian—Danish and Chinese. Though I can only speak Danish and English
-- Malleus Draconia riako, non-sharing
+- Malleus Draconia riako
+- I'm a clingy person, I get attached easily
 - My birthday : December 14th
 </details>
 
@@ -17,7 +18,6 @@
 <summary> Before You Interact</summary>
 I have chronic loneliness & am diagnosed with Autism Spectrum Disorder. I won't be able to mention everything here. Please be respectful and use tone tags with me if possible. ​I am oftentimes disconnected from people and their emotions—and occasionally reality—even if we are close. I try my best to empathize, but I am legitimately mentally unwell. I have poor recollection and might not remember you or certain details well. I am frequently overwhelmed and become dysregulated easily for extended periods. I am generally fatigued due to masking, and I often spend time daydreaming or mindlessly wandering.
 
-- I'm a clingy person & get easily attached
 - I like sharing information about myself and things I find interesting, whether they're positive or negative. If that makes you uncomfortable, please let me know. 
 </details>
 
